@@ -1,1 +1,1 @@
-toolsmania.fun
+lososka.github.io
